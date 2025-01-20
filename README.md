@@ -1,2 +1,4 @@
-# Hello-World
-This repository is for practicing the GitHub Flow.
+Imani Walker
+Detroit, Mi
+Michigan State Alumna
+Dog mom of Nahvi
